@@ -1,1 +1,0 @@
-# deliveryfoodbachynskyimaxim5_1
